@@ -49,7 +49,7 @@ Die, auf Initiative der PIRATEN beschlossene stadtweite Online-Befragung zur Aus
                                
 ## Bürgerhaushalt
 
-Die Solinger PIRATEN setzen sich für mehr Mitspracherechte bei der Gestaltung der Haushalte ein. Jede Haushaltsverabschiedung des Rates, soll durch einen Bürgerhaushalt begleitet werden. Dabei darf es jedoch nicht nur um Sparmaßnahmen gehen. Der Bürgerhaushalt ist so zu konzipieren, das eine wirkliche Mitgestaltungsmöglichkeit besteht.
+Die Solinger PIRATEN setzen sich für mehr Mitspracherechte bei der Gestaltung der Haushalte ein. Jede Haushaltsverabschiedung des Rates, soll durch einen Bürgerhaushalt begleitet werden. Dabei darf es jedoch nicht nur um Sparmaßnahmen gehen. Der Bürgerhaushalt ist so zu konzipieren, dass eine wirkliche Mitgestaltungsmöglichkeit besteht.
 
 ## PIRATEN als Proxy der Bürger
 
